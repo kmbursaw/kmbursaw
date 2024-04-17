@@ -21,6 +21,7 @@ KC-10A Aircraft Commander
 2d Air Refuleing Squadron, Chief of Scheduling (2019)<br>
 2d Air Refueling Squadron, Interm Cheif of Tactics/Asst Cheif of Tactics (2017-2019)<br>
 2d Air Refuling Squadron, Resource Advisor (2016-2017)<br>
-Link to full <a href="assets/CV_Bursaw.pdf">CV</a><br>
+
+Please contact for full CV<br>
 
 
