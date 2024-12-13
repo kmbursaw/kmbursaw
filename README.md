@@ -14,6 +14,7 @@ UNIVERSITY OF MIAMI: Masters of Business Administration (2020)<br>
 PURDUE UNIVERSITY: Bachelors of Science in Professional Flight Technology (2013)<br>
 
 ## Employment
+Salas O'Brien: Senior Project Analyst<br>
 Major, USAF<br>
 Euro-NATO Joint Jet Pilot Training T-6A Instructor Pilot<br>
 KC-10A Aircraft Commander
