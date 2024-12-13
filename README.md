@@ -4,8 +4,10 @@
 OKLAHOMA STATE UNIVERSITY: Doctorate in Applied Educational Studies in Aviation and Space Education (2022)
                        Dissertation: 
                        <a href="https://commons.erau.edu/cgi/viewcontent.cgi?article=1978&context=jaaer"> The Effects of Operationally Limited Evironments on Primary Flight Training at the Collegiate Level</a><br>
+
+UNIVERSITY OF NOTRE DAME: Masters of Science in Applied and Computational Mathematics and Statistics: Data Science (Proj 2026)<br>                       
                     
-UNIVERSITY OF WISCONSIN-MADISON: Masters of Science in Cartography and GIS Development (Proj 2026)<br>
+UNIVERSITY OF WISCONSIN-MADISON: Masters of Science in Cartography and GIS Development (Proj 2025)<br>
 
 UNIVERSITY OF MIAMI: Masters of Business Administration (2020)<br>
 
