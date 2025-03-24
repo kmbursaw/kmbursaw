@@ -16,7 +16,7 @@ PURDUE UNIVERSITY: Bachelors of Science in Professional Flight Technology (2013)
 ## Employment
 Salas O'Brien: Senior Project Analyst<br>
 Limited Term Lecturer at Purdue University School of Aviation and Transportation Technology <br>
-Major, USAF<br>
+Major, USAF (separated)<br>
 Euro-NATO Joint Jet Pilot Training T-6A Instructor Pilot<br>
 KC-10A Aircraft Commander
 80th Flying Training Wing A5/9 Chief of Wing Plans and Chief of Wing Reports and Analysis (2023-Pres)<br>
