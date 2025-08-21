@@ -7,7 +7,7 @@ OKLAHOMA STATE UNIVERSITY: Doctorate in Applied Educational Studies in Aviation 
 
 UNIVERSITY OF NOTRE DAME: Masters of Science in Applied and Computational Mathematics and Statistics: Data Science (Proj 2026)<br>                       
                     
-UNIVERSITY OF WISCONSIN-MADISON: Masters of Science in Cartography and GIS Development (Proj 2025)<br>
+UNIVERSITY OF WISCONSIN-MADISON: Masters of Science in Cartography and GIS Development (2025)<br>
 
 UNIVERSITY OF MIAMI: Masters of Business Administration (2020)<br>
 
